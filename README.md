@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tronsymphony
-- 👀 I’m interested in contract work and remote
+- 👀 I’m interested in contract work and remote opportunities
 - 📫 How to reach me - http://forwwarddesign.com/
 
 <!---
