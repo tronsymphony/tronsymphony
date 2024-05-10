@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @tronsymphony
-- 👀 I’m interested in contract work and remote opportunities
+- 👋 Hi, I’m Nitya
 - 📫 How to reach me - [http://forwwarddesign.com/](https://wordpresspro.biz/)
 
 <!---
