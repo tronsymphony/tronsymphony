@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nitya
-- 📫 How to reach me - [http://forwwarddesign.com/](https://wordpresspro.biz/)
+- 📫 How to reach me - [http://casa-dev.com/](https://casa-dev.com/)
 
 <!---
 tronsymphony/tronsymphony is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
